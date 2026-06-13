@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **oztepeali@gmail.com**
 
-- 📄 Know about my experiences [alioztepe.com](alioztepe.com)
+- 📄 Know about my experiences [linkedin](https://www.linkedin.com/in/alioztepe/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
